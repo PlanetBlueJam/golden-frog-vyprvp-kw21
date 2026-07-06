@@ -1,4 +1,4 @@
-
+Get the ultimate StrongVPN plugin with StrongVPN elite Plugin: obfuscation & cross-platform-support. Featuring obfuscation and cross-platform-support, it's the best choice for
 
 
 
